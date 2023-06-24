@@ -1,0 +1,2 @@
+# Bingung
+Gak ngerti aih 
